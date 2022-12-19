@@ -1,2 +1,2 @@
 # maragewedding
-https://naimur8606.github.io/maragewedding/
+https://naimur8606.github.io/maragwedding/
